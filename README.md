@@ -1,0 +1,1 @@
+# BizCare_Parta_Privacy_Policy
